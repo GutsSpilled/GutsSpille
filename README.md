@@ -24,22 +24,3 @@
  <DIV align="center">
 
  <p align="center">
-   
-<details>
-  
-<summary>ꜰᴀɴᴅᴏᴍꜱ</summary>
-as of recently, my current fandoms are ⟶ Doctor who, danny phantom,  mlb, DC comics, spiderverse, Alexander Hamilton,  rick and morty (i larp the show), arcane (i larp the series), pretty pretty please i dont wanna be a magical girl, FNF, harry potter (i DO NOT support J.K), metal family, deltarune, DBH, TF2, KND, spies in disguise, Hannibal, ugly dolls, vocaloid
-
- </details> 
-
- </p>
-
-  <p align="center">
-   
-<details>
-  
-<summary>ɪᴡᴄ</summary>
-for now, i do not block nor do i hide ppl freely, i do not have a specific DNI critique (do not abuse this) however there are certain people i dont feel comfortable around and those are ⟶ 30+, first doctor fans, tenth doctor haters, rick and morty shippers, Jinx fans, Hannibal lecter cosplayers, deadpool cosplayers, heavy x medic shippers, dee x heavy fans, J.K supporters, Americans, Arabs
- </details> 
-
- </p>
