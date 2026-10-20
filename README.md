@@ -2,23 +2,23 @@
     <th>
         <div align="center">
 <img src="https://www.image2url.com/r2/default/images/1792484750615-0ce14a8c-c5c5-4557-9c95-eabb3e57c216.png" alt="imgate"/><br>
-            $\color{#ff899c}{\textsf{⊹ ࣪ ˖ ໒꒱　" }}$
-            $\color{#FF899C}{\textsf{I}}$
-            $\color{#FF91A2}{\textsf{o}}$
-            $\color{#FF9AA9}{\textsf{w}}$
-            $\color{#FFA2B0}{\textsf{n }}$
-            $\color{#FFB3BE}{\textsf{t}}$
-            $\color{#FFBCC5}{\textsf{h}}$
-            $\color{#FFC4CC}{\textsf{i}}$
-            $\color{#FFCDD3}{\textsf{s }}$
-            $\color{#FFCDD3}{\textsf{c}}$
-            $\color{#FFC4CC}{\textsf{i }}$
-            $\color{#FFB3BE}{\textsf{t}}$
-            $\color{#FFABB7}{\textsf{y}}$
-            $\color{#FFA2B0}{\textsf{.}}$
-            $\color{#FF9AA9}{\textsf{.}}$
-            $\color{#FF91A2}{\textsf{.}}$
-            $\color{#ff899c}{\textsf{" ꒰১ ໒꒱}}$ <br>
+            $\color{#590D22}{\textsf{⊹ ࣪ ˖ ໒꒱　" }}$
+            $\color{#800F2F}{\textsf{I}}$
+            $\color{#A4133C}{\textsf{o}}$
+            $\color{#C9184A}{\textsf{w}}$
+            $\color{#FF4D6D}{\textsf{n }}$
+            $\color{#FF758F}{\textsf{t}}$
+            $\color{#FF8FA3}{\textsf{h}}$
+            $\color{#FFB3C1}{\textsf{i}}$
+            $\color{#FFCCD5}{\textsf{s }}$
+            $\color{#FFB3C1}{\textsf{c}}$
+            $\color{#FF8FA3}{\textsf{i }}$
+            $\color{#FF758F}{\textsf{t}}$
+            $\color{#FF4D6D}{\textsf{y}}$
+            $\color{#C9184A}{\textsf{.}}$
+            $\color{#A4133C}{\textsf{.}}$
+            $\color{#800F2F}{\textsf{.}}$
+            $\color{#590D22}{\textsf{" ꒰১ ໒꒱}}$ <br>
             
 <img src="https://www.image2url.com/r2/default/gifs/1792480891179-a3b5569b-0c1c-4669-bdff-928a58370830.gif" width="190x"/><br>
             <img src="https://profile-counter-6gcm88z3y-r0ttendeers-projects.vercel.app/api/views?id=r0ttendeers&label=✚❤︎%20&style=flat-square&rightColor=ff899c&leftColor=ffbcc3"/>
