@@ -20,7 +20,7 @@
             $\color{#FF91A2}{\textsf{.}}$
             $\color{#ff899c}{\textsf{"　⋆˙⟡}}$ <br>
             
-<img src="https://videotourl.com/videos/1792480034825-7ec5a72a-e602-4957-a25d-604430f91f1c.webm" width="450px"/><br>
+<img src="https://www.image2url.com/r2/default/gifs/1792480891179-a3b5569b-0c1c-4669-bdff-928a58370830.gif" width="450px"/><br>
             <img src="https://profile-counter-6gcm88z3y-r0ttendeers-projects.vercel.app/api/views?id=r0ttendeers&label=✚❤︎%20&style=flat-square&rightColor=ff899c&leftColor=ffbcc3"/>
 <br>
 <img src="https://file.garden/asL1d_zQTtQK6NOl/mili%20git/militsioner"><br>
