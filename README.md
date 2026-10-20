@@ -1,7 +1,7 @@
 <table align="center">
     <th>
         <div align="center">
-<img src="https://file.garden/asL1d_zQTtQK6NOl/bucky%20git/div2.png?v=1791164407862" width="450px"/><br>
+<img src="https://www.image2url.com/r2/default/images/1792483447567-839d38f6-0461-4a40-9f8e-95691f24322d.jpg" alt="imgate"/><br>
             $\color{#ff899c}{\textsf{𑣲❀　" }}$
             $\color{#FF899C}{\textsf{c}}$
             $\color{#FF91A2}{\textsf{o}}$
@@ -24,7 +24,7 @@
             <img src="https://profile-counter-6gcm88z3y-r0ttendeers-projects.vercel.app/api/views?id=r0ttendeers&label=✚❤︎%20&style=flat-square&rightColor=ff899c&leftColor=ffbcc3"/>
 <br>
 <img src="https://file.garden/asL1d_zQTtQK6NOl/mili%20git/militsioner"><br>
-<img src="https://file.garden/asL1d_zQTtQK6NOl/bucky%20git/div3.png" width="450px"/> 
+<img src="https://www.image2url.com/r2/default/images/1792483410325-6223bbc5-2be7-4583-b7b8-9e97865e1ed5.jpg" alt="mrmmm" /> 
 </div>
 </th>
     <th>
