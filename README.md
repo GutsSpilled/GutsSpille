@@ -1,35 +1,35 @@
 <table align="center">
     <th>
         <div align="center">
-<img src="https://www.image2url.com/r2/default/images/1792483447567-839d38f6-0461-4a40-9f8e-95691f24322d.jpg" alt="imgate"/><br>
-            $\color{#ff899c}{\textsf{𑣲❀　" }}$
-            $\color{#FF899C}{\textsf{c}}$
+<img src="https://www.image2url.com/r2/default/images/1792484750615-0ce14a8c-c5c5-4557-9c95-eabb3e57c216.png" alt="imgate"/><br>
+            $\color{#ff899c}{\textsf{⊹ ࣪ ˖ ໒꒱　" }}$
+            $\color{#FF899C}{\textsf{I}}$
             $\color{#FF91A2}{\textsf{o}}$
-            $\color{#FF9AA9}{\textsf{m}}$
-            $\color{#FFA2B0}{\textsf{e }}$
-            $\color{#FFB3BE}{\textsf{b}}$
-            $\color{#FFBCC5}{\textsf{a}}$
-            $\color{#FFC4CC}{\textsf{c}}$
-            $\color{#FFCDD3}{\textsf{k }}$
-            $\color{#FFCDD3}{\textsf{t}}$
-            $\color{#FFC4CC}{\textsf{o }}$
-            $\color{#FFB3BE}{\textsf{m}}$
-            $\color{#FFABB7}{\textsf{e}}$
+            $\color{#FF9AA9}{\textsf{w}}$
+            $\color{#FFA2B0}{\textsf{n }}$
+            $\color{#FFB3BE}{\textsf{t}}$
+            $\color{#FFBCC5}{\textsf{h}}$
+            $\color{#FFC4CC}{\textsf{i}}$
+            $\color{#FFCDD3}{\textsf{s }}$
+            $\color{#FFCDD3}{\textsf{c}}$
+            $\color{#FFC4CC}{\textsf{i }}$
+            $\color{#FFB3BE}{\textsf{t}}$
+            $\color{#FFABB7}{\textsf{y}}$
             $\color{#FFA2B0}{\textsf{.}}$
             $\color{#FF9AA9}{\textsf{.}}$
             $\color{#FF91A2}{\textsf{.}}$
-            $\color{#ff899c}{\textsf{"　⋆˙⟡}}$ <br>
+            $\color{#ff899c}{\textsf{" ꒰১ ໒꒱}}$ <br>
             
-<img src="https://www.image2url.com/r2/default/gifs/1792480891179-a3b5569b-0c1c-4669-bdff-928a58370830.gif" width="450px"/><br>
+<img src="https://www.image2url.com/r2/default/gifs/1792480891179-a3b5569b-0c1c-4669-bdff-928a58370830.gif" width="190x"/><br>
             <img src="https://profile-counter-6gcm88z3y-r0ttendeers-projects.vercel.app/api/views?id=r0ttendeers&label=✚❤︎%20&style=flat-square&rightColor=ff899c&leftColor=ffbcc3"/>
 <br>
 <img src="https://file.garden/asL1d_zQTtQK6NOl/mili%20git/militsioner"><br>
-<img src="https://www.image2url.com/r2/default/images/1792483410325-6223bbc5-2be7-4583-b7b8-9e97865e1ed5.jpg" alt="mrmmm" /> 
+<img src="https://www.image2url.com/r2/default/images/1792484723130-06f457aa-73e9-4312-97cb-420c6fd35bfc.png" alt="mrmmm" /> 
 </div>
 </th>
     <th>
         <div align="center">
-<img src="https://file.garden/asL1d_zQTtQK6NOl/bucky%20git/div2.png?v=1791164407862" width="450px"/><br>
+<img src="https://www.image2url.com/r2/default/images/1792484750615-0ce14a8c-c5c5-4557-9c95-eabb3e57c216.png"/><br>
 <br>
 
 ⠀
@@ -70,7 +70,7 @@ $\color{#ff899c}{\textsf{𑣲ྐ𔘓　" }}$
 <a href="https://github.com/kittinan/spotify-github-profile">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=1y9pm5qv9uybes67tnfvfgoyh&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=true&profanity=false&hide_remaster=false&bar_color=ffb5b5&bar_color_cover=false">
   </a><br>
-<img src="https://file.garden/asL1d_zQTtQK6NOl/bucky%20git/div3.png" width="450px"/>
+<img src="https://www.image2url.com/r2/default/images/1792484723130-06f457aa-73e9-4312-97cb-420c6fd35bfc.png"/>
 </div>  
     </th>
 </table>
