@@ -23,7 +23,7 @@
 <img src="https://www.image2url.com/r2/default/gifs/1792480891179-a3b5569b-0c1c-4669-bdff-928a58370830.gif" width="190x"/><br>
             ![](https://komarev.com/ghpvc/?username=GutsSpilled&label=ᨳଓ&color=EA638C&base=10000)
 <br>
-<img src="https://www.image2url.com/r2/default/files/1792557940301-a37ed491-b8af-4186-b656-fc86245fd6f6.webp"><img src="https://www.image2url.com/r2/default/files/1792558228816-d2aef3c2-0bad-4007-8af1-61deff4cfbdb.webp"><img src="https://www.image2url.com/r2/default/gifs/1792559553193-4eae7675-ec30-4d74-bd3f-90136690216a.gif"><br>
+<img src="https://www.image2url.com/r2/default/files/1792557940301-a37ed491-b8af-4186-b656-fc86245fd6f6.webp"><img src="https://www.image2url.com/r2/default/files/1792558228816-d2aef3c2-0bad-4007-8af1-61deff4cfbdb.webp"><img src="https://www.image2url.com/r2/default/gifs/1792559693614-a29e3df5-c4f6-4d39-bf56-90b7ed1b2684.gif"><br>
 <img src="https://www.image2url.com/r2/default/images/1792484723130-06f457aa-73e9-4312-97cb-420c6fd35bfc.png" alt="mrmmm" /> 
 </div>
 </th>
@@ -33,21 +33,16 @@
 <br>
 
 ⠀
-$\large{\color{#ff899c}{\textsf{𓏲 ๋࣭ꉂ´ bucky}}}$⠀⠀<img src="https://file.garden/asL1d_zQTtQK6NOl/mili%20git/flower"/>⠀⠀
-$\large{\color{#ff899c}{\textsf{he/any '༉୭}}}$<br>
+$\large{\color{#ff899c}{\textsf{𓏵‧₊˚ Stanley┊}}}$⠀⠀<img src="https://www.image2url.com/r2/default/images/1792559801105-41888686-94d5-4bbf-8733-9e14951978e5.png" width=100/>⠀⠀
+$\large{\color{#ff899c}{\textsf{he/She Ი𐑼}}}$<br>
 
-<img src="https://file.garden/asL1d_zQTtQK6NOl/mili%20git/hearts" width="40px"/><img src="https://file.garden/asL1d_zQTtQK6NOl/mili%20git/hearts" width="40px"/><br>
+<img src="https://www.image2url.com/r2/default/images/1792560298881-24adf832-22bb-4bf3-812d-ab6cedf9c59f.webp" width="40px"/><br>
 
-$\normalsize{\textsf{I'm veryy shy + awkward but I try!!}}$ <br>
-$\normalsize{\textsf{PLEASE INT but pls be patient (♡ˊ͈ ꒳ ˋ͈)}}$	<br>
-
-$\color{#ff899c}{\textsf{Interests}}$ <br>
-$\normalsize{\textsf{dbh, militsioner, faith, etc . . . rentry for more!}}$	<br>
-$\small{\textsf{i love bucky barnes but im not rly in the mcu fandom}}$ <br>
+<img src="https://img.sanishtech.com/u/2bddfd1ef885e3a92723f3a49a79a92b.jpg" width=200> <br>
 <br>
-<img src="https://file.garden/asL1d_zQTtQK6NOl/mili%20git/hearts" width="40px"/><img src="https://file.garden/asL1d_zQTtQK6NOl/mili%20git/hearts" width="40px"/>
+<img src="https://www.image2url.com/r2/default/images/1792560298881-24adf832-22bb-4bf3-812d-ab6cedf9c59f.webp" width="40px"/>
 <br><br>
-[![](https://file.garden/asL1d_zQTtQK6NOl/mili%20git/rentry)](https://rentry.co/buckysarm)　　![](https://file.garden/asL1d_zQTtQK6NOl/mili%20git/straw)<br>[![](https://file.garden/asL1d_zQTtQK6NOl/mili%20git/gunslol)](https://guns.lol/buckluck)　　[![](https://file.garden/asL1d_zQTtQK6NOl/mili%20git/ata)](https://rottendeer.atabook.org/)
+[![](https://img.sanishtech.com/u/9d9961de0f5b1572e51cd47d4d0d5b47.png)](https://gutspilled.straw.page)　　[![](https://file.garden/asL1d_zQTtQK6NOl/mili%20git/ata)](https://friedbrain.atabook.org/)
 <br><br>
 $\color{#ff899c}{\textsf{૮꒰ ྀི >⸝⸝⸝< ྀི꒱ა " }}$
             $\color{#880D1E}{\textsf{cuz}}$
