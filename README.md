@@ -21,9 +21,9 @@
             $\color{#A4133C}{\textsf{" ꒰১ ໒꒱}}$ <br>
             
 <img src="https://www.image2url.com/r2/default/gifs/1792480891179-a3b5569b-0c1c-4669-bdff-928a58370830.gif" width="190x"/><br>
-            ![](https://komarev.com/ghpvc/?username=GutsSpilled&label=ᨳଓ&color=EA638C&base=1000)
+            ![](https://komarev.com/ghpvc/?username=GutsSpilled&label=ᨳଓ&color=EA638C&base=10000)
 <br>
-<img src="https://file.garden/asL1d_zQTtQK6NOl/mili%20git/militsioner"><br>
+<img src="https://www.image2url.com/r2/default/files/1792557940301-a37ed491-b8af-4186-b656-fc86245fd6f6.webp"><img src="https://www.image2url.com/r2/default/files/1792558228816-d2aef3c2-0bad-4007-8af1-61deff4cfbdb.webp"><img src="https://www.image2url.com/r2/default/gifs/1792559553193-4eae7675-ec30-4d74-bd3f-90136690216a.gif"><br>
 <img src="https://www.image2url.com/r2/default/images/1792484723130-06f457aa-73e9-4312-97cb-420c6fd35bfc.png" alt="mrmmm" /> 
 </div>
 </th>
