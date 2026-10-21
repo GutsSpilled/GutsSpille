@@ -21,7 +21,7 @@
             $\color{#A4133C}{\textsf{" ꒰১ ໒꒱}}$ <br>
             
 <img src="https://www.image2url.com/r2/default/gifs/1792480891179-a3b5569b-0c1c-4669-bdff-928a58370830.gif" width="190x"/><br>
-            ![](https://komarev.com/ghpvc/?username=GutsSpilled&label=ᨳଓ&color=EA638C)
+            ![](https://komarev.com/ghpvc/?username=GutsSpilled&label=ᨳଓ&color=EA638C&base=1000)
 <br>
 <img src="https://file.garden/asL1d_zQTtQK6NOl/mili%20git/militsioner"><br>
 <img src="https://www.image2url.com/r2/default/images/1792484723130-06f457aa-73e9-4312-97cb-420c6fd35bfc.png" alt="mrmmm" /> 
