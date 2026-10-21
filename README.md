@@ -42,7 +42,8 @@ $\large{\color{#ff899c}{\textsf{he/She Ი𐑼}}}$<br>
 <br>
 <img src="https://www.image2url.com/r2/default/images/1792560298881-24adf832-22bb-4bf3-812d-ab6cedf9c59f.webp" width="40px"/>
 <br><br>
-[![](Strawpag3)](https://gutspilled.straw.page)　　[![](Ata)](https://friedbrain.atabook.org/)
+<a href="https://gutspilled.straw.page/"><img src="https://img.sanishtech.com/u/5daa521e71e6173af572aa2777c501f3.png" width=70></a>
+<a href="https://friedbrain.atabook.org/"><img src="https://img.sanishtech.com/u/a4cc7bd0e0f34b2c05784769c73bcd53.png" width=70></a>
 <br><br>
 $\color{#ff899c}{\textsf{૮꒰ ྀི >⸝⸝⸝< ྀི꒱ა " }}$
             $\color{#880D1E}{\textsf{cuz}}$
